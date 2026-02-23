@@ -337,7 +337,7 @@
         nacionais e internacionais, em que a TUA ao longo destes anos já levou o nome de Portugal e
         Aveiro a países como Espanha, França, Suiça, Alemanha, Áustria, Hungria, Itália, Eslováquia e
         também ao Brasil. Merece destaque a nossa mais recente presença internacional, nas
-        Comemorações da 1.ª Républica Portuguesa, na Câmara Municipal de Paris, e na semana da
+        Comemorações da 1.ª República Portuguesa, na Câmara Municipal de Paris, e na semana da
         Queima'18 Paris, onde se viveram incríveis momentos de alegria e comunhão com as
         comunidades portuguesas.
       </p>
